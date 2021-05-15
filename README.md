@@ -1,4 +1,5 @@
 # buy poopcoin
+get here quicker with thsi link https://bit.ly/3btQsZC.
  to buy poop coin, send me an email @vradlicz222@gmail.com with this format.
   I want to buy _____ shares for _____ dollars, under the name of _____ _____, my secret passcode is _____.
   we will talk about how you will give my the money to buy it.
